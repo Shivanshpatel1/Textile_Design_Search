@@ -42,4 +42,4 @@ If you encounter any issues or have suggestions for improvements, please request
 ## Contact
 For any inquiries or further information, please contact at:
 
-Email: harshsutariya1179@gmail.com
+Email: shivanshpatel1818@gmail.com
